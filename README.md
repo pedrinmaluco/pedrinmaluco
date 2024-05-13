@@ -6,4 +6,4 @@ to tentando estudar no alura😏
 
 eu faço o bagulho do javascript🤑
 
-estou usando essa narquia aqui para desenvolver e compartilhar meus projetos😎
+estou usando esse site aqui para desenvolver e compartilhar meus projetos😎
